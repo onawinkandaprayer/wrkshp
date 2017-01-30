@@ -10,7 +10,7 @@ categories: faq
 
 ## What is World Church Affirmation Sabbath? (Concise)
 
-World Church Affirmation Sabbath is a regional gathering of laypeople in a Conference to build up the Church. Laypeople gather and fellowship together while participating in short, interactive lay-presented talks designed to equip to bless the Conference. Meetings uplift Christ, support the world church, and oppose insubordinate Conference, Union, and Division agendas
+World Church Affirmation Sabbath is a regional gathering of laypeople in a Conference to build up the Church. Laypeople gather to fellowship together while participating in short, interactive lay-presented talks designed to equip to bless the Conference. Meetings uplift Christ, support the world church, and oppose insubordinate Conference, Union, and Division agendas
 
 ## What is World Church Affirmation Sabbath? (Detail)
 
