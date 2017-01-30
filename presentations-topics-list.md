@@ -1,15 +1,15 @@
 
 ## How God Has Led Us
 
-God led in the formation of the Seventh-day Adventist Church. Thousands answered the call to the Second Coming message but only a few studied and embraced the Biblical truths needful for the last days. How we can recover this clarity and act it out in the Church.
+God led in the formation of the Seventh-day Adventist Church. Thousands responded to Heaven's call to proclaim the nearness of Jesus' return while but few studied and embraced the Biblical truths needful in these last days. How we can recover this clarity and act it out in the Church?
 
 ## Truths We Must Share
 
-Reaffirming Heaven's call to us to deliver Jesus' unique truths to the world, including pillars like the Sabbath, the Sanctuary, and the state of the dead.
+This presentation reaffirms Heaven's call to deliver Jesus' unique truths to the world, including the Sabbath, the Sanctuary, and the state of the dead.
 
 ## Messenger to the Remnant
 
-What truths are so important that God sent a prophetess to His people?
+What truths could be so important that God would send a prophetess to His people?
 
 ## A Missionary Work
 
