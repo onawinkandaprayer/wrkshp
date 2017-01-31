@@ -1,19 +1,19 @@
 # **Lightning Talks**
-Each talk is a rapid-fire, informationally rich teaching segment. cwThe presentations are no more than 15 minutes each in length. NOTE: Talks presented during Sabbath hours are especially prepared to manifest a high spiritual tone. Some presentations will be presented or made available in off-sabbath hours.
+Each World Church Affirmation sabbath talk is a rapid-fire, informationally rich teaching segment. Presentations are no more than 15 minutes in length. NOTE: Talks presented during Sabbath hours are especially prepared to manifest a high spiritual tone. Some talks will be presented or made available in off-sabbath hours.
 
 ---
 
 ## 1. How God has Led Us
 
-God led in the formation of the Seventh-day Adventist Church. Thousands responded to Heaven's call to proclaim the nearness of Jesus' return, but few studied and embraced the Biblical truths needful in this hour. How can His Church recover this clarity and act it out?
+God led in the formation of the Seventh-day Adventist Church. Thousands responded to Heaven's call to proclaim the nearness of Jesus' return, yet few studied and embraced the Biblical truths needful in this hour. Learn how God's Church today can attain clarity and advance!
 
 ## 2. Truths We Must Share
 
-Why Heaven calls us to deliver Jesus' unique truths to the world, including the Sabbath, the Sanctuary, and the state of the dead.
+Why Heaven calls us to deliver Jesus' unique truths inncluding the Sabbath, the Sanctuary, and the state of the dead to the world.
 
 ## 3. Messenger to the Remnant
 
-What truths could be so important that God would send a prophetess to His people?
+What truths could be so important that God would confirm them to His people by sending a prophetess?
 
 ## 4. A Missionary Work
 
@@ -33,7 +33,7 @@ Understand how UCC delegates are chosen. Explain the five regions, the large com
 
 ## 8. Making the Representative System Work
 
-Help your local church be faithful. Selecting delegates and officers for the Constituency and Lay-advisory committees. Be ahead of rather than behind the curve. Make yourself available.
+Help your local church be faithful. How to select delegates and officers for the Constituency and Lay-advisory committees. Be ahead of rather than behind the curve. Make yourself available.
 
 ## 9. Laypeople and Representative Governance
 
@@ -41,7 +41,7 @@ Explain basics of representation at the Conference level, along with the member'
 
 ## 10. Rights of Members
 
-Help members understand the member's rights to open board meetings, business meeting participation, and proper process in the selection of local church officers.
+Understand member's rights to open board meetings, business meeting participation, and proper process in the selection of local church officers.
 
 ## 11. How the Church Works
 
@@ -59,13 +59,17 @@ What delegates and committee members need to know about how the main motion work
 
 Postpone, Amend, Refer, Limit Debate, Previous Question.
 
+## 15. Basic Parliamentary Motions: Point of Order
+
+When a point of order is valid, and if necessary, how to challenge the ruling of the chair.
+
 ## 15. Conference Constitution and Bylaws
 
 Current UCC Constitution and Bylaws and needed amendments.
 
 ## 16. We Are the World Church
 
-The world church is not the administrators. Why you, the local members, effectively play a larger role than Conference, Union, and Division leadership.
+The world church is not the administrators. Why you, the local members, effectively play a much more determinative role in the Church than Conference, Union, and Division leadership.
 
 ## 17. Non-unity to Unity: How?
 
