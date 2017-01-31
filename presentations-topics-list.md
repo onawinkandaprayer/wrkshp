@@ -63,18 +63,18 @@ Postpone, Amend, Refer, Limit Debate, Previous Question.
 
 When a point of order is valid, and if necessary, how to challenge the ruling of the chair.
 
-## 15. Conference Constitution and Bylaws
+## 16. Conference Constitution and Bylaws
 
 Current UCC Constitution and Bylaws and needed amendments.
 
-## 16. We Are the World Church
+## 17. We Are the World Church
 
 The world church is not the administrators. Why you, the local members, effectively play a much more determinative role in the Church than Conference, Union, and Division leadership.
 
-## 17. Non-unity to Unity: How?
+## 18. Non-unity to Unity: How?
 
 Why God's church can come into unity, not through mere informational knowledge, but through clear-thinking members involved in representative processes.
 
-## 18. How to Be a Help to Your Pastor
+## 19. How to Be a Help to Your Pastor
 
 Be involved in a humble and helpful way so as to help your pastor carry out his proper duties and not exceed his authorities. Help him plan for needed duties (nominating committee, delegate selection, etc.).
