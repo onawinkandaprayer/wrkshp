@@ -1,5 +1,5 @@
 # **Lightning Talks**
-Rapid-fire, straightforward but informationally rich teaching segments 15 minutes or less in length. Talks presented during the Sabbath hours are prepared to have an especially high spiritual tone.
+Rapid-fire, straightforward but informationally rich teaching segments. Each segment no more than 15 minutes in length. NOTE: All talks presented during the Sabbath hours especially prepared so as to manifest an especially high spiritual tone. Some talks would be held until non-sabbath hours.
 
 ---
 
