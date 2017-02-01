@@ -47,19 +47,19 @@ Understand member's rights to open board meetings, business meeting participatio
 
 How the church works, from the local member to the General Conference. Jesus is the Head of the body, meaning the local church, its board, the conference executive committee, and union and division committees.
 
-## 12. Why Parliamentary Procedure?
+## 12. Parliamentary Procedure #1: Why Parliamentary Procedure?
 
 Basic principles of member's rights: the majority, minority, individual members, and absentees.
 
-## 13. Basic Parliamentary Motions: Main Motion
+## 13. Parliamentary Procedure #2: Main Motion
 
 What delegates and committee members need to know about how the main motion works: the differences between original and incidental motions, and main motions that are not in order.
 
-## 14. Basic Pariamentary Motions: Subsidiary Motions
+## 14. Parliamentary Procedure #3: Secondary Motions
 
-Postpone, Amend, Refer, Limit Debate, Previous Question.
+Postpone, Amend, Refer, Limit Debate, Previous Question, etc.
 
-## 15. Basic Parliamentary Motions: Point of Order
+## 15. Parliamentary Procedure #4: Point of Order
 
 When a point of order is valid, and if necessary, how to challenge the ruling of the chair.
 
